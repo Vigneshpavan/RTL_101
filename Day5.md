@@ -1,0 +1,10 @@
+VECTORS
+![VECTOR](https://github.com/user-attachments/assets/7d9d1c9c-5e84-43aa-8c69-b39dd9a26135)
+![VECTOR 1](https://github.com/user-attachments/assets/96d0e43b-5dbd-4369-8a66-65ac454b0413)
+![VECTOR 2](https://github.com/user-attachments/assets/123820fb-93a1-4e9b-99fe-fc7e3861b395)
+![VECTOR GATES](https://github.com/user-attachments/assets/3a1199d7-4003-497a-870e-87bb04a850da)
+![GATES 4](https://github.com/user-attachments/assets/6533d627-f2a8-47e1-aed3-1f7dbf5a6a10)
+![VECTOR 3](https://github.com/user-attachments/assets/dd42a1f6-2955-4acf-a7a0-f9ca7ecff47f)
+![VECTORR](https://github.com/user-attachments/assets/6de47512-67ca-41aa-b8ba-c37b87ccf8de)
+![VECTOR 4](https://github.com/user-attachments/assets/3514408f-216f-4bed-88e6-a2062983d3a5)
+![VECTOR 5](https://github.com/user-attachments/assets/05a17e1b-8b00-4759-a0cb-5baac3dee55c)
